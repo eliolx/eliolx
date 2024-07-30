@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **anything**
 
-- 📫 How to reach me **https://discord.com/users/1020292982622138408**
+- 📫 Reach me through [discord](https://discord.com/users/1020292982622138408)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
